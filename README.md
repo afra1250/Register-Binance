@@ -58,9 +58,9 @@
 
 可以复制以下链接到浏览器打开注册，即可享受全网最高返佣：
 
-https://www.marketwebb.black/zh-CN/join?ref=A2KQ6HJZ
+https://www.marketwebb.club/zh-CN/join?ref=A2KQ6HJZ
 
-https://www.suitechsui.blue/zh-CN/join?ref=A2KQ6HJZ
+https://www.marketwebb.com/zh-CN/join?ref=A2KQ6HJZ
 
 8. 币安老用户能享受返佣和手续费减免吗？
 
